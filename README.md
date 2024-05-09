@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Ryan Hajj
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate on Anything Really!
+- 📫 How to reach me: ryanjhajj72709@gmail.com or ryanhajj@aledoisd.org
+- ⚡ Fun fact: I am huge NERD
